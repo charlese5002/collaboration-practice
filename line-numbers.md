@@ -1,10 +1,10 @@
-#### 1 Charlie wuz here!
+#### 1 Charlie was here!
 #### 2
 #### 3 antonio was here!
 #### 4
 #### 5 sep is fun
 #### 6
-#### 7
+#### 7 Charlie was here
 #### 8
 #### 9
 #### 10
